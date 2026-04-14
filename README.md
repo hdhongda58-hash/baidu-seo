@@ -1,2 +1,2 @@
-# chinese-seo-telegram
-Chinese SEO Telegram Group - Baidu Google Bing 360 SEO Technical Exchange
+👉 **[Join the Telegram Group](YOUR_TELEGRAM_GROUP_LINK_HERE)**
+👉 **[Join the Telegram Group]((https://t.me/WebOps_HD))**
